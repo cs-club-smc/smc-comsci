@@ -11,3 +11,6 @@ Emad Saadat was here.
 "kept you waiting, huh?" - Matthew L
 
 "Howdy!" - J. Manuel Z
+
+"Hi!" - Jeong
+
