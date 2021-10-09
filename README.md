@@ -14,3 +14,5 @@ Emad Saadat was here.
 
 "Hi!" - Jeong
 
+"hello" - Raaid
+
